@@ -1,4 +1,4 @@
-#  
+#  Experience anime card collection like never before with professional anime card collection Script, the #1 Script. Includes aimbot and teleport for
 
 
 
